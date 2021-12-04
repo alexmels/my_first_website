@@ -2,7 +2,7 @@
 
 ### I can't wait to see what you create!
 
-1[Pixabay Cat] (pixabay_Free-Photos.jpg)
+[Pixabay Cat] (pixabay_Free-Photos.jpg)
 
 **I hope you have so much fun creating your website!**
 *drive*
